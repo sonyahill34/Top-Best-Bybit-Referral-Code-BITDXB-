@@ -27,7 +27,7 @@ These bonuses can be used to test strategies, trade with fewer fees, or boost yo
 Trading fees can eat into your profits, especially for active traders. However, by using referral code BITDXB, you’ll have access to **60% lower fees** on your trades.  
 This allows you to maximize your profits as you trade, giving you more flexibility to scale up your portfolio.
 
-In addition, BYBIT frequently offers rebates and discounts for referred users, which means you pay less every time you make a trade.
+In addition, BYBIT frequently offers rebates and discounts for referred users, which means you pay less every time you make a trade
 
 ---
 
